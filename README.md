@@ -1,1 +1,1 @@
-Everything you need is here: [2006.digital](https://2006.digital).
+Everything you need is here: [2006.cloud](https://2006.cloud).
