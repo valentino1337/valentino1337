@@ -1,1 +1,2 @@
-Everything you need is here: [2006.cloud](https://2006.cloud).
+Ave crux spes unica
+![gothodoxy](https://pbs.twimg.com/media/F4wp15MXMAAElql.jpg)
